@@ -1,9 +1,1 @@
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/uywmp5.webp" width="550" />
-
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/ur2lh0.png" alt="image" width="550" />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/1gfsds.png" alt="image" width="200" /> <img align="middle" src="https://files.catbox.moe/03sq0g.png" alt="image" width="150" /> <img align="middle" src="https://files.catbox.moe/r732ly.webp" width="200" />
-
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://files.catbox.moe/uywmp5.webp" width="550" />
-
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img align="middle" src="https://file.garden/ad7E6gx5M13uwG93/Ba%C5%9Fl%C4%B1ks%C4%B1z40_20260418015249.png" alt="image" width="550" />
